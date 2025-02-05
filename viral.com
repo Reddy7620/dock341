@@ -1,0 +1,1 @@
+ghari kadhi janar aahe tumhi 
